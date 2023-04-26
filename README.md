@@ -19,7 +19,7 @@
 
 -  I'm a great friend of :wolf:Animals:tiger: and a fan of :dragon:mythical creatures:unicorn:
 
-- :guitar: My favorite Band is <b>Imagine Dragons</b>
+- :guitar: My favorite Bands are <b>Imagine Dragons</b> and <b>Twenty One Pilots</b>
 
 ---
 
